@@ -19,10 +19,10 @@ Requirements :
   more tha co-operating it is supporting  a shared golas
   more than working together it is shared vision
   Exm: green iniciative
-  * Egineer to provide the necessary techonology
-  * Change manageridentify  Necessary behaiubiurs
-  *PM organize the change
-  *Operation management, establish the polices to maintain the  change
+  *  Egineer to provide the necessary techonology
+  *  Change manageridentify  Necessary behaiubiurs
+  *  PM organize the change
+  *  Operation management, establish the polices to maintain the  change
 
   
 
