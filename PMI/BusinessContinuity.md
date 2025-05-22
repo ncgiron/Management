@@ -59,6 +59,37 @@ Requirements :
     * Respectful
     * reliable
     * Responsible
-* 
+  * Show genuine commitment
+    * Contributing as much as possible
+  * Dont state in theShow genuine commitment
+    * If you do not know ask the team
+
+Teams
+
+Teaming= Answer to complex issues, 
+Without previous experience 
+Excel at asking question
+get up to speed quickly
+Learn everyons  roles and responsabilites
+Find out what each brings to the team
+
+
+Navigating still of working stilles
+
+
+Experie
+treat at risk
+your own aproach 
+
+* types
+  -Piooners
+  -Big-pcitures thinkers --no detail oriented.
+  -Guardians: stability ,order and consistency.
+  -Drivers: thrive on results and winning.
+  -Integrators : connection and consensoues
+  -Diplomatics :
+  -flexing-->navigating in different stiles
+  -
+
 
 
