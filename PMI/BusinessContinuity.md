@@ -25,5 +25,40 @@ Requirements :
   *  Operation management, establish the polices to maintain the  change
 
   
+#Maximaizin  the data access and knowledge sharing across the organizacion 
+
+* Get up speed quickly in agroup, able execute their rol an lear more skills
+* work with anyone, anytime anywhere.
+* Be team focused, not silo focused.
+* May see sharing as a theart to job security.
+* Be generous  Even if is not cretid to do
+* Team member  shcedule, take a notes and compile reports
+* Be curious, asking the righ question
+* Bike sharing
+* Great Colaboration
+* Earn and maintan the trust of the team.
+* Build trust through actions, modeling behaivour
+* Share the spot lights
+* Take commintments seriusly
+* Internal and external
+* Offer network expert
+* Be diplomatic, managemen
+* Mutual respect
+* Everyone
+* Build conse
+* Trust and respect
+
+  ## Beeng a got team player
+
+  * Diverse mix individuals
+  * colo-cates or collobared
+  * Cultural or language barriers
+  * Basic principles shoud be apllied
+    * Honest
+    * Fair
+    * Respectful
+    * reliable
+    * Responsible
+* 
 
 
